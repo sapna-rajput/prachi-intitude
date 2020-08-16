@@ -1,1 +1,1 @@
-# prachi-intitude
+# prachi-institude
